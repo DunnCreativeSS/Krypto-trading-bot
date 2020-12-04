@@ -1,3 +1,4 @@
+If you found this repo useful, consider clicking the sponsor button near the top :) Sponsoring via GitHub is as little as $1/month and if you do not use banks or credit cards, there are crypto links included :)<br /><br />
 <img align="left" src="https://user-images.githubusercontent.com/1634027/36237231-e611590e-11fa-11e8-8486-6675078501dc.jpg" /><p align="right">self reminder:<br><b>patience is the mother of science</b></p><br><a href="http://ciutatrefugi.barcelona/en/welcome-barcelona">\*\*\* REFUGEES WELCOME! \*\*\*</a><br/>&thinsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://missingmigrants.iom.int/">\*\*\* FATAL ROUTES? \*\*\*</a>
 <br clear="left">
 
